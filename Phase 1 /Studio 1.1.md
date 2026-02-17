@@ -1,1 +1,3 @@
-
+Visual Prompt Studio Phase 1.1
+Prompt: Can you create  large scale sculpture painted in black & white in  designed as a form of competitiveness. The artwork should be located in a soccer stadium Barcelona Spain. Its main message is to grab its intensity when it’s comes to winning & competition. The subject matter includes a crowd cheering on towards both team within fireworks in the background. The style should be representative with black & white colors giving old vibes & tension between both teams Real Madrid Vs Barcelona.
+Vocabulary Breakdown : medium - Sculture within black & white, its meaning - towards to be its intensity and competetiveness. the subject matter is the two scultures 1 on 1 againts eachother while also giving a score of 1 - 0 showing much more intense towards the image 
